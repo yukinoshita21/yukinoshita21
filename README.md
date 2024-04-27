@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yukinoshita21
 
-jesus christ.
+proffesional NEET, LOSER, HOPELESS, MENTALLY ILL
 
 
-make a prograss
+make a progress
